@@ -1,3 +1,4 @@
 Jhonny Depp
-Wagner Moura
+Antonio Fagundes
 Isis Valverde
+Bruna Marquesine
